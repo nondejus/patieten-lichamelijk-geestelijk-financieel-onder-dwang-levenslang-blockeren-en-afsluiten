@@ -1,0 +1,1 @@
+# patieten-lichamelijk-geestelijk-financieel-onder-dwang-levenslang-blockeren-en-afsluiten
